@@ -45,3 +45,12 @@ acclimate to workplaces causes me to not have a lot of motivation to
 improve my situation or have an advanced career.
 
 ## Smart Goal
+
+I plan to overcome these weaknesses by setting a quota for submitting
+a certain number of resumes per day, and following up on all resumes
+submitted on a set time frame. This is a specific action and the quota
+makes it easy to measure whether it is being achieved. I will set the
+quota at a level that makes it achievable. It is relevant because it
+specifically address my lack of comfort regarding the job application
+process. The daily nature of the quota ties it closely to the passage
+of time.
