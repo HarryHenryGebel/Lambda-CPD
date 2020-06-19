@@ -13,7 +13,7 @@ formal capacity as a software developer.
 I am mature and well-acclimated to the workplace. I have always been
 punctual and dedicated to my employer's values. I have usually ended
 up having a side role in training, and am often a shop steward, a role
-requiring respect and trust from both co-workers and management.
+requiring the respect and trust of both co-workers and management.
 
 ### Weaknesses
 
