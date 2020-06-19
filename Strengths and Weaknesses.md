@@ -28,11 +28,12 @@ their job description.
 
 With the exception of a very small handful of relatives and childhood
 friends I do not maintain friendships, and even in that case I have no
-friendships that I maintain on an in-person basis; nor do I associate
-with my coworkers except at work or on rare occasions organized group
-activities arranged by the union or my employer. This sometimes leads
-to feelings of lack of inclusion, and not being sure I am accepted as
-a complete equal by my coworkers.
+friendships that I maintain on an in-person basis; in fact, I have not
+met any of my friends in person for almost two decades. Nor do I
+associate with my coworkers except at work or on rare occasions
+organized group activities arranged by the union or my employer. This
+sometimes leads to feelings of lack of inclusion, and not being sure I
+am accepted as a complete equal by my coworkers.
 
 ### Impostor Syndrome
 
