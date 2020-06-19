@@ -37,4 +37,11 @@ am accepted as a complete equal by my coworkers.
 
 ### Impostor Syndrome
 
+My lack of assertiveness contributes to impostor syndrome because it
+makes it very hard for me to believe that I will be able to prove
+myself to a potential employer if that employer does not have a
+reputation of hiring everyone who applies. The fact that I easily
+acclimate to workplaces causes me to not have a lot of motivation to
+improve my situation or have an advanced career.
+
 ## Smart Goal
